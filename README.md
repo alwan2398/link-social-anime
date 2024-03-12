@@ -1,6 +1,5 @@
-# Product Card Sepatu dengan UI Design minimalis
+# link social background video anime
 ## [Follow Tiktok](https://vt.tiktok.com/ZSFyon5HF/)
-### @alwanbalweel Card product dengan UI Design minimalis
-
+### @alwanbalweel
 
 💙 jangan lupa start dan follow tiktok saya makasih
